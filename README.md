@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **someshkadam57980@gmail.com**
 
-- 📄 Know about my experiences [https://pdf.ac/2I_6GtNEKX](https://pdf.ac/2I_6GtNEKX)
+- 📄 Know about my experiences [https://pdflink.to/somesh-resume/](https://pdflink.to/somesh-resume/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
