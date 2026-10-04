@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **someshkadam57980@gmail.com**
 
-- 📄 Know about my experiences [https://frosty-dawn-419.linkyhost.com](https://frosty-dawn-419.linkyhost.com)
+- 📄 Know about my experiences [https://pdf.ac/2I_6GtNEKX](https://pdf.ac/2I_6GtNEKX)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
